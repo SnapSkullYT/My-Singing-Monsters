@@ -1,1 +1,0 @@
-help im being kidnapped
